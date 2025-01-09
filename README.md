@@ -1,2 +1,0 @@
-# Lenguajes-Programaci-n
-Pagina
